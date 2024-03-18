@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @leikenghou
-- 🎮 I like playing: Modded Minecraft, FPS, 3A games
+- 🎮 Spare time: Modded Minecraft, FPS, 3A games
 - 💚 INFP-O-H
 - 📖 JiNan University
 <!---
